@@ -1,1 +1,1 @@
-Self-hosting entustiast, loves building, most my work happens outside of github
+Self-hosting entustiast, loves building, working on my side-projects outside of github, being in Germany, learning German.
